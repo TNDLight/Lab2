@@ -9,4 +9,7 @@
 ## Instructions:
 1. Preheat the oven to 350°F (175°C).
 2. In a large bowl, whisk together the flour, sugar, and cocoa powder.
-3. ...
+
+## Additional notice from Anthony:
+1. Don't eat too much chocolate, it causes diabetes
+2. Use Godiva chocolate, best in the world
